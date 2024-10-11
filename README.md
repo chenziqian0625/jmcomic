@@ -1,2 +1,2 @@
 # jmcomic
-https://www.18comic-blackmyth.club
+https://www.18comic-16promax.club
